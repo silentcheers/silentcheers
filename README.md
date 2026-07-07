@@ -1,16 +1,13 @@
-## Hi there 👋
+[![EGOWeapon-Soda.webp](https://i.postimg.cc/fR3s9jbD/EGOWeapon-Soda.webp)](https://postimg.cc/G4160DY5)
 
-<!--
-**silentcheers/silentcheers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*"Here comes the bride,*
 
-Here are some ideas to get you started:
+*better run and hide! ⁠๑ "*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+～
+
+*" Dressed in white,*
+
+*she's got an appetite. ♬ "*
+
+[![EGOWeapon-Da-Capo.webp](https://i.postimg.cc/289myXrQ/EGOWeapon-Da-Capo.webp)](https://postimg.cc/LnPG0Dq5)
