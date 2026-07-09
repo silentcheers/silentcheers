@@ -1,4 +1,5 @@
 [![bubbles.gif](https://i.postimg.cc/GmKy6TRT/bubbles.gif)](https://postimg.cc/MncHQTvz)
+
 [![EGOWeapon-Soda.webp](https://i.postimg.cc/fR3s9jbD/EGOWeapon-Soda.webp)](https://postimg.cc/G4160DY5)
 
 *"Here comes the bride,*
@@ -12,6 +13,7 @@
 *she's got an appetite. ♬ "*
 
 [![EGOWeapon-Da-Capo.webp](https://i.postimg.cc/289myXrQ/EGOWeapon-Da-Capo.webp)](https://postimg.cc/LnPG0Dq5)
+
 [![sheetmusic.gif](https://i.postimg.cc/sxGxX1bL/sheetmusic.gif)](https://postimg.cc/p5xRcVWQ)
 
 
